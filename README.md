@@ -1,2 +1,4 @@
 # demo
-haid dtnan
+haido
+ở nhà
+lười lắm
